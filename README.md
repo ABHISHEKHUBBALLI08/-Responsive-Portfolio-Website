@@ -45,7 +45,7 @@ Open index.html in your browser to view the website.
 Contact Me
 Feel free to reach out via:
 
-Email: abhishekhubballi592@gmail.com
+Email: abhishekhubballi0806@gmail.com
 Phone: +91 7204593465
 LinkedIn: Abhishek Hubballi
 Instagram: abhishek_hubballi_08
